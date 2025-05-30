@@ -14,7 +14,7 @@
 **📫 Let's Connect:**
 
 * 💌 Email: [ranbirsingh.code@gmail.com](mailto:ranbirsingh.code@gmail.com)
-* 🔗 LinkedIn: [Ranbir Singh](https://www.linkedin.com/in/ranbir-singh-92a578288/)
+* 🔗 LinkedIn: [Ranbir Singh](https://www.linkedin.com/in/ranbir5ingh/)
 
 **😄 Pronouns:**
 
